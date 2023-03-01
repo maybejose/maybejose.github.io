@@ -1,1 +1,0 @@
-# maybejose.github.io
